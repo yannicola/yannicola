@@ -1,8 +1,8 @@
 - 👋 Hi, I’m @yannicola
 - 👀 I’m interested in multidisciplinary learning
 - 🌱 I’m currently learning collaborative working 
- - 💞️ I’m looking to collaborate on partnership
-- 📫 How to reach me email
+ - 💞️ I’m looking to collaborate on a small business partnership
+- 📫 How to reach me: email
 - 😄 Pronouns: she/her
 - ⚡ Fun fact: philosophy lover
 
