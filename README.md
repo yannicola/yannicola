@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @yannicola
+- 👋 Hi, I’m @ypoyan
 - 👀 I’m interested in multidisciplinary learning
 - 🌱 I’m currently learning collaborative working 
  - 💞️ I’m looking for collaborating in the form of a small business partnership
